@@ -1,1 +1,4 @@
-# Excel-na-grade-da-etec
+# Excel-na-grade-da-ETEC
+
+Ter aulas como essas na grade acadêmica são extremamente essenciais no M-TEC, principalmente por ser aplicada a um ensino já integrado e num período integral, ou seja, não compromete os objetivos dos estudantes, pois que oferece um conhecimento excelente para jovens estudantes que prepararão seus currículos, se profissionalizando cada vez mais. A execução dessas aulas foi extremamente eficiente e a frente no quesito de destaque das empresas, consequentemente um destaque como candidato, em que ele saberá comunicar e descrever suas habilidades, como comunicar que sabe criar e fazer funcionar o PROCV, PROCH, botões e múltiplas respostas devido ao resultado de fórmulas, além de preparar para explorarem diferentes e outros programas. 
+Aprende-se matemática, lógica entre as células e a função de tudo aquilo, ensinando como pode ser possível gerenciar, controlar e proteger os dados. Eu gosto que essas aulas me ensinaram sobre agilidade e eficiência para realizar um trabalho, ao realizar tarefas e mexer com computadores.
